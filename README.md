@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Shishir422
 - 👀 I’m interested in Hacking and programming 
-- 🌱 I’m currently learning in class 10
+- 🌱 I’m currently learning in class 11
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reach me on shishir4234@gmail.com
 
